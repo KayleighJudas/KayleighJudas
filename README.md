@@ -28,7 +28,7 @@
 <br>
 <p align="center">══════ ཐི⋆ INT / DNI ⋆ཋྀ ══════</p>
 
-<p align="center">ᯓ★ It's easier to check my strawpage for this! It's easier to go in more depth.</p> 
+<p align="center">ᯓ★ It's easier to check my strawpage for this! It's more in depth.</p> 
 <p align="center">For now though, Just be a decent and mature human being. ^⩊^ It's best for everyone.</p>
 
 <br>
