@@ -48,5 +48,5 @@
 <p align="center">You're always free to try again some other time unless I explicitly tell you otherwise.</p>
 <p align="center">Fair warning; Just because I may share an interest with you does not always mean I wanna be friends.</p>
 <br>
-more will be added soon <3
+More will be added when necessary. This undergoes constant changes the more I change!
 <br>
