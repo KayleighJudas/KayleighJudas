@@ -1,6 +1,6 @@
 <p align="center">ʜᴜᴍᴀɴɪᴛʏ. ᴏᴜʀ ᴠᴇʀʏ ᴇꜱꜱᴇɴᴄᴇ. ᴏᴜʀ ᴇᴍᴏᴛɪᴏɴꜱ... ʀᴀɢᴇ. ᴄᴏᴍᴘᴀꜱꜱɪᴏɴ. ʜᴀᴛᴇ. ᴛᴡᴏ ꜱɪᴅᴇꜱ ᴏꜰ ᴛʜᴇ ꜱᴀᴍᴇ ᴄᴏɪɴ. ɪɴᴇxᴛʀɪᴄᴀʙʟʏ ʙᴏᴜɴᴅ.</p>
 <p align="center">ᴛʜᴀᴛ ᴡʜɪᴄʜ ɪɴꜱᴘɪʀᴇꜱ ᴜꜱ ᴛᴏ ᴏᴜʀ ɢʀᴇᴀᴛᴇꜱᴛ ɢᴏᴏᴅ ɪꜱ ᴀʟꜱᴏ ᴛʜᴇ ᴄᴀᴜꜱᴇ ᴏꜰ ᴏᴜʀ ɢʀᴇᴀᴛᴇꜱᴛ ᴇᴠɪʟ.</p>
-<p align="center">PonyTown's Machine Herald - Thank you @title-town! </p>
+<p align="center">PonyTown's Machine Herald - Thank you @title-town & @pt-walk-of-fame !! </p>
 
 <p align="center"> ━━━━━━･❪ 🎕 ❫ ･━━━━━━ </p>
 
