@@ -22,7 +22,7 @@
 <br>
 <p align="center">══════ ཐི⋆ WHERE TO FIND ME ⋆ཋྀ ══════</p>
 
-<p align="center">I frequent the bakery - most often sitting in front of the counter or nestled in the back room. Rarely will I be outside.</p>
+<p align="center">I frequent the bakery - most often sitting in front of the counter. If not there, then I'm scattered around outside with friends.</p>
 <p align="center">I prefer not being covered, though I understand it's bound to happen! I will ask you to move, but will move myself if otherwise.</p>
 
 <br>
