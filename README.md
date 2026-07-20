@@ -42,11 +42,13 @@
 <p align="center">══════ ཐི⋆ Extra ⋆ཋྀ ══════</p>
 
 <p align="center">Viktor is my comfort kin. I'm him, he is me. Tell me otherwise - generational beef. We'll square up you best believe it.</p>
-<p align="center">I would say ppl who kin him as well - doubles or wtv - iwc? I just get nervous, that's all. No hate! Love you all.</p>
+<p align="center">I would say ppl who feel the same - doubles or wtv - iwec ?? I just get nervous, that's all. Love you all dearly though!</p>
 <br>
 <p align="center">I do get moody - if I react poorly on one day, It may differ the next!</p> 
 <p align="center">You're always free to try again some other time unless I explicitly tell you otherwise.</p>
-<p align="center">Fair warning; Just because I may share an interest with you does not always mean I wanna be friends.</p>
+<br>
+<p align="center">I get very intimidated by people I find cool or who share the same interests as me. I'm practically under a spotlight so I get spooked.</p>
+<p align="center">Fair warning; Just because I may share an interest with you does not always mean I wanna be friends! I'm very particular abt friendship.</p>
 <br>
 <p align="center">More will be added when necessary, I revise this often -- Credits to every pfp artists used! -- @beautifulbydesign || Follow Acc</p>
 <br>
