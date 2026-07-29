@@ -50,5 +50,5 @@
 <p align="center">I get very intimidated by people I find cool or who share the same interests as me. I'm practically under a spotlight so I get spooked.</p>
 <p align="center">Fair warning; Just because I may share an interest with you does not always mean I wanna be friends! I'm very particular abt friendship.</p>
 <br>
-<p align="center">More will be added when necessary, I revise this often -- profile picture drawn by me tee-hee -- @beautifulbydesign || Follow Acc</p>
+<p align="center">More will be added when necessary, I revise this often -- Profile Picture drawn by yours truly -- @beautifulbydesign || Follow Acc</p>
 <br>
