@@ -1,4 +1,4 @@
-<p align="center">$\color{#B6D5C6}{PONYTOWN'S​ MACHINE​ HERALD​ :​ Title ​Town​ 𖥔​ PT​ Walk​ of ​Fame​ 𖥔 ​PT​ Achievements}$</p>
+<p align="center">$\color{#B6D5C6}{PONYTOWN'S​ MACHINE​ HERALD​ :​ Title ​Town​ 𖥔​ PT​ Walk​ of ​Fame​ 𖥔 Ponychievements}$</p>
 
 <p align="center"><img width="826" height="213" alt="Screenshot_2026-08-04_210544" src="https://github.com/user-attachments/assets/90d52b68-b023-4627-b23c-d876d2d401cb" /></p>
 
