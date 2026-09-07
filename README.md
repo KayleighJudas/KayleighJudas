@@ -80,3 +80,19 @@
 
 <p align="center"><img width="826" height="213" alt="image" src="https://github.com/user-attachments/assets/a382c968-a5a5-4185-a1e1-9252cd640bb9" /></p>
 <p align="center">$\color{#D69A9C}{MORE​ WILL​ BE ​ADDED ​WHEN ​NECESSARY,​ I ​REVISE ​THIS ​OFTEN ​𖥔 ​@beautifulbydesign​ - ​ALT ​FOLLOW ​ACCOUNT}$</p>
+
+__________________________________________________________________________________________
+<br>
+<p align="center">𖥔 All Nominations of mine! 𖥔</p>
+
+<p align="center">Ponytown's Machine Herald: </p>
+
+[@title-town](https://github.com/title-town) 
+[@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+[@ponychievements](https://github.com/ponychievements)
+[@charactersofpt](https://github.com/charactersofpt)
+[@ponytowncosplayers](https://github.com/ponytowncosplayers)
+
+<p align="center">Ponytown's Viktor: </p>
+
+[@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@actuallyjaycetalis](https://github.com/actuallyjaycetalis)
