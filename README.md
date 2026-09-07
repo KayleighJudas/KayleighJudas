@@ -87,12 +87,12 @@ ________________________________________________________________________________
 
 <p align="center"> ━━━━━━･❪ Ponytown's Machine Herald: ❫ ･━━━━━━ </p>
 
-[@title-town](https://github.com/title-town) 
+♡ [@title-town](https://github.com/title-town) 
 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
 [@ponychievements](https://github.com/ponychievements)
 [@charactersofpt](https://github.com/charactersofpt)
-[@ponytowncosplayers](https://github.com/ponytowncosplayers)
+[@ponytowncosplayers](https://github.com/ponytowncosplayers) ♡
 
 <p align="center"> ━━━━━━･❪ Ponytown's Viktor: ❫ ･━━━━━━ </p>
 
-[@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@actuallyjaycetalis](https://github.com/actuallyjaycetalis)
+♡ [@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@actuallyjaycetalis](https://github.com/actuallyjaycetalis) ♡
