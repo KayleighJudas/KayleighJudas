@@ -83,9 +83,9 @@
 
 __________________________________________________________________________________________
 <br>
-<p align="center">𖥔 All Nominations of mine! 𖥔</p>
+<p align="center">𖥔 All Nominations of mine! Thank you all Nomination pages! 𖥔</p>
 
-<p align="center">Ponytown's Machine Herald: </p>
+<p align="center"> ━━━━━━･❪ Ponytown's Machine Herald: ❫ ･━━━━━━ </p>
 
 [@title-town](https://github.com/title-town) 
 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
@@ -93,6 +93,6 @@ ________________________________________________________________________________
 [@charactersofpt](https://github.com/charactersofpt)
 [@ponytowncosplayers](https://github.com/ponytowncosplayers)
 
-<p align="center">Ponytown's Viktor: </p>
+<p align="center"> ━━━━━━･❪ Ponytown's Viktor: ❫ ･━━━━━━ </p>
 
 [@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@actuallyjaycetalis](https://github.com/actuallyjaycetalis)
