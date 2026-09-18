@@ -63,7 +63,7 @@
 <td>
 <br>
 
-<p align="center">$\color{#36BCE1}{Doubles​ do ​not ​bother​ me, ​however​ I ​may​ get ​nervous​ so ​always ​interact​ with ​caution​ or ​care.}$</p>
+<p align="center">$\color{#36BCE1}{Doubles​ have ​begun ​to ​bother​ me. I will​ get ​nervous​ so ​always ​interact​ with ​caution​ or ​care.}$</p>
 
 <p align="center">$\color{#3375A8}{I ​am ​diagnosed ​neurodivergent ​with ​several ​mood ​disorders. ​My ​mood ​and ​activity ​will ​change ​often.}$</p>
 
