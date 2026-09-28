@@ -1,3 +1,11 @@
+<details>
+<summary>PERSONAL PSA (important)</summary>
+
+Something I've been experiencing lately. I didn't want to make a google doc, I wanted images to be properly included. So I made a strawpage.
+[The Strawpage](https://personalpsa.straw.page)
+
+</details>
+
 <p align="center">$\color{#B6D5C6}{PONYTOWN'S​ VIKTOR​ (ARCANE)​ AND ​MACHINE​ HERALD ​(LEAGUE​ OF ​LEGENDS) ← TY ​NOMINATIONS!}$</p>
 
 <p align="center"><img width="826" height="213" alt="Screenshot_2026-08-04_210544" src="https://github.com/user-attachments/assets/90d52b68-b023-4627-b23c-d876d2d401cb" /></p>
