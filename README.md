@@ -1,3 +1,4 @@
+I hate messing up my github ugh.
 <details>
 <summary>PERSONAL PSA (important)</summary>
 
@@ -5,6 +6,8 @@ Something I've been experiencing lately. I didn't want to make a google doc, I w
 [The Strawpage](https://personalpsa.straw.page)
 
 </details>
+
+__________________________________________________________________________________________
 
 <p align="center">$\color{#B6D5C6}{PONYTOWN'S​ VIKTOR​ (ARCANE)​ AND ​MACHINE​ HERALD ​(LEAGUE​ OF ​LEGENDS) ← TY ​NOMINATIONS!}$</p>
 
