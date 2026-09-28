@@ -2,7 +2,7 @@ I hate messing up my github ugh.
 <details>
 <summary>PERSONAL PSA (important)</summary>
 
-Something I've been experiencing lately. I didn't want to make a google doc, I wanted images to be properly included. So I made a strawpage.
+Something I've been experiencing lately. You don't gotta read, but i'd appreciate the help.\
 [The Strawpage](https://personalpsa.straw.page)
 
 </details>
