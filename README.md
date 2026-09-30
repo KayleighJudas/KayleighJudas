@@ -1,4 +1,3 @@
-I hate messing up my github ugh.
 <details>
 <summary>PERSONAL PSA (important)</summary>
 
