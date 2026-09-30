@@ -47,7 +47,7 @@ ________________________________________________________________________________
 <td>
 <br>
 
-<p align="center">$\color{#DFCCC4}{I ​frequent​ the​ bakery ​- ​most ​often ​sitting​ at ​the ​front ​counter ​with ​friends.​}$</p>
+<p align="center">$\color{#DFCCC4}{I ​frequent​ the​ bakery - outside​ the​ front​ or​ sitting​ at ​the ​bakery​ front ​counter ​with ​friends.​}$</p>
 
 <p align="center">$\color{#D9A683}{I​ prefer ​not​ to ​be​ covered.​ Please ​do ​not ​copy ​or ​take ​inspiration ​from ​my ​skins.}$</p>
 
@@ -73,7 +73,7 @@ ________________________________________________________________________________
 <td>
 <br>
 
-<p align="center">$\color{#36BCE1}{Doubles​ have ​begun ​to ​bother​ me.​ I​ will​ get ​nervous​ so ​always ​interact​ with ​caution​ or ​care.}$</p>
+<p align="center">$\color{#36BCE1}{Doubles​ bother​ me.​ I​ will​ get ​nervous​ so ​always ​interact​ with ​caution​ or ​care ​unless​ I ​say ​otherwise.}$</p>
 
 <p align="center">$\color{#3375A8}{I ​am ​diagnosed ​neurodivergent ​with ​several ​mood ​disorders. ​My ​mood ​and ​activity ​will ​change ​often.}$</p>
 
