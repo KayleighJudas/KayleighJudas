@@ -47,7 +47,7 @@ ________________________________________________________________________________
 <td>
 <br>
 
-<p align="center">$\color{#DFCCC4}{I ​frequent​ the​ bakery - outside​ the​ front​ or​ sitting​ at ​the ​bakery​ front ​counter ​with ​friends.​}$</p>
+<p align="center">$\color{#DFCCC4}{I ​frequent​ the​ bakery - around​ the​ area​ or​ sitting​ at ​the ​bakery​ front ​counter ​with ​friends.​}$</p>
 
 <p align="center">$\color{#D9A683}{I​ prefer ​not​ to ​be​ covered.​ Please ​do ​not ​copy ​or ​take ​inspiration ​from ​my ​skins.}$</p>
 
