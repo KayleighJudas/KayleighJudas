@@ -109,12 +109,15 @@ ________________________________________________________________________________
 
 __________________________________________________________________________________________
 <br>
-<p align="center">𖥔 OTHER ACCOUNTS: 𖥔</p>
+<details>
+<summary>𖥔 OTHER ACCOUNTS: 𖥔</summary>
+
 <p align="center"> ━━━━━━･❪ Main & Follow Account ❫ ･━━━━━━ </p>
 
 <div align="center">
   <a href="https://github.com/KayleighJudas">♡ Main Account: @kayleighjudas</a>
 </div>
+━ ^ You are here ^ ━
 <div align="center">
   <a href="https://github.com/beautifulbydesign">♡ Follow Account: @beautifulbydesign</a>
 </div>
@@ -129,3 +132,5 @@ ________________________________________________________________________________
 </div>
 <br>
 <p align="center"> I'm an account freak, sorry. </p>
+
+</details>
