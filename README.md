@@ -131,6 +131,6 @@ ________________________________________________________________________________
   <a href="https://github.com/Sierra-ll7">♡ Halo Cosplays: @Sierra-ll7</a>
 </div>
 <br>
-<p align="center"> I'm an account freak, sorry. </p>
+<p align="center"> Genuine account demon, I apologize. I only use the bottom 2 for cosplay! </p>
 
 </details>
