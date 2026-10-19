@@ -64,8 +64,8 @@ ________________________________________________________________________________
 
 </div>
 
-<p align="center"><img width="826" height="213" alt="image" src="https://github.com/user-attachments/assets/44f0f0fd-033c-47a0-94c1-2fa8d009b262" /></p>
-<p align="center">$\color{#9B846B}{I​ am ​a ​Viktor​ kin.​ It ​comforts​ me​ being​ referred ​to​ as ​him ​and ​his ​counterparts​;​ Arcane​ and​ League​ alike.}$</p>
+<p align="center"><img width="826" height="213" alt="c3dac895-9b42-4dba-bc3d-7b4693ad2e0d" src="https://github.com/user-attachments/assets/bf0f4df5-a835-4d8d-961e-33f76fd42648" /></p>
+<p align="center">$\color{#802132}{I​ am ​a ​Viktor​ kin.​ It ​comforts​ me​ being​ referred ​to​ as ​him ​and ​his ​counterparts​;​ Arcane​ and​ League​ alike.}$</p>
 <div align="center">
 
 <table>
@@ -73,15 +73,15 @@ ________________________________________________________________________________
 <td>
 <br>
 
-<p align="center">$\color{#36BCE1}{Doubles​ bother​ me.​ I​ will​ get ​nervous​ so ​always ​interact​ with ​caution​ or ​care ​unless​ I ​say ​otherwise.}$</p>
+<p align="center">$\color{#749EC2}{Doubles​ bother​ me.​ I​ will​ get ​nervous​ so ​always ​interact​ with ​caution​ or ​care ​unless​ I ​say ​otherwise.}$</p>
 
-<p align="center">$\color{#3375A8}{I ​am ​diagnosed ​neurodivergent ​with ​several ​mood ​disorders. ​My ​mood ​and ​activity ​will ​change ​often.}$</p>
+<p align="center">$\color{#648DBA}{I ​am ​diagnosed ​neurodivergent ​with ​several ​mood ​disorders. ​My ​mood ​and ​activity ​will ​change ​often.}$</p>
 
-<p align="center">$\color{#4C4F82}{Because​ of​ that, ​first ​impressions​ matter. ​Your ​attitude ​will ​likely ​reflect ​how ​I ​treat ​you ​going ​forward.}$</p> 
+<p align="center">$\color{#436794}{Because​ of​ that, ​first ​impressions​ matter. ​Your ​attitude ​will ​likely ​reflect ​how ​I ​treat ​you ​going ​forward.}$</p> 
 
-<p align="center">$\color{#715F93}{That's​ all ​for ​now. ​Check ​Straw​ and​ Pronouns ​page ​for ​more.​ Sign ​ATA ​if ​you're​ interested? ​I'd ​appreciate ​it!}$</p>
+<p align="center">$\color{#3B5A8B}{That's​ all ​for ​now. ​Check ​Straw​ and​ Pronouns ​page ​for ​more.​ Sign ​ATA ​if ​you're​ interested? ​I'd ​appreciate ​it!}$</p>
 
-<p align="center">$\color{#E8CE97}{ ━━━━━━･❪ 🎕 ❫ ･━━━━━━ }$</p>
+<p align="center">$\color{#C6CBD5}{ ━━━━━━･❪ 🎕 ❫ ･━━━━━━ }$</p>
 
 <br>
 </td>
