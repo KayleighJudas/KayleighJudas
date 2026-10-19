@@ -40,6 +40,8 @@ ________________________________________________________________________________
 
 <p align="center"><img width="826" height="213" alt="image" src="https://github.com/user-attachments/assets/25597c64-c11d-45d1-ae15-c54fbadd59a3" /></p>
 
+<p align="center">$\color{#794534}{Almost ​always ​sitting​ with ​my​ partner. ​Please ​treat ​them ​with​ kindness ​and ​respect.}$</p>
+
 <div align="center">
 
 <table>
