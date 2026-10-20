@@ -1,3 +1,12 @@
+<details>
+<summary>PERSONAL PSA (important)</summary>
+
+Something I've been experiencing lately. You don't gotta read, but i'd appreciate the help.\
+This is ongoing, and she is now targeting my partner.\
+[The Strawpage](https://personalpsa.straw.page)
+
+</details>
+
 __________________________________________________________________________________________
 
 <p align="center">$\color{#B6D5C6}{PONYTOWN'S​ VIKTOR​ (ARCANE)​ AND ​MACHINE​ HERALD ​(LEAGUE​ OF ​LEGENDS) ← TY ​NOMINATIONS!}$</p>
