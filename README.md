@@ -108,7 +108,7 @@ ________________________________________________________________________________
 
 <p align="center"> ━━━━━━･❪ Ponytown's Viktor: ❫ ･━━━━━━ </p>
 
-♡ [@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@actuallyjaycetalis](https://github.com/actuallyjaycetalis) ♡
+♡ [@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@FlSHB0NEZ](https://github.com/FlSHB0NEZ) ♡
 
 __________________________________________________________________________________________
 <br>
