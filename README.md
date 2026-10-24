@@ -1,4 +1,4 @@
-<p align="center">Temporarily removing my strawpages until whoever is spamming it gets a grip.</p>
+<p align="center">Temporarily removing my strawpages until whoever is spamming it gets a grip. Use my ATA if you wanna sign anything.</p>
 
 __________________________________________________________________________________________
 
