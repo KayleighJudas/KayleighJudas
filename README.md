@@ -2,9 +2,9 @@
 <details>
 <summary>Personal PSA:</summary>
 
-Added my strawpages back now that whoever was spamming me is blocked from sending gimmicks.
-Something I've been experiencing; You don't gotta read but help would be appreciated.
-[The Strawpage](https://personalpsa.straw.page/)
+Added my strawpages back now that whoever was spamming me is blocked from sending gimmicks.\
+Something I've been experiencing; You don't gotta read but help would be appreciated.\
+[The Strawpage](https://personalpsa.straw.page/)\
 I respond to questions. Spamming will be ignored unless I find necessary to reply.
 
 </details>
