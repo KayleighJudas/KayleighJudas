@@ -2,8 +2,9 @@
 <summary>PERSONAL PSA (important)</summary>
 
 Something I've been experiencing lately. You don't gotta read, but i'd appreciate the help.\
-This is ongoing, and she is now targeting my partner.\
-[The Strawpage](https://personalpsa.straw.page)
+This is ongoing.\
+[The Strawpage](https://personalpsa.straw.page)\
+I will respond to questions on the page itself. Excessive spamming or dumb bullshit will likely be ignored unless I find necessary to respond.
 
 </details>
 
