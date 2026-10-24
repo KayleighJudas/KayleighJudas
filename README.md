@@ -1,12 +1,4 @@
-<details>
-<summary>PERSONAL PSA (important)</summary>
-
-Something I've been experiencing lately. You don't gotta read, but i'd appreciate the help.\
-This is ongoing.\
-[The Strawpage](https://personalpsa.straw.page)\
-I will respond to questions on the page itself. Excessive spamming or dumb bullshit will likely be ignored unless I find necessary to respond.
-
-</details>
+<p align="center">Temporarily removing my strawpages until whoever is spamming it gets a grip.</p>
 
 __________________________________________________________________________________________
 
