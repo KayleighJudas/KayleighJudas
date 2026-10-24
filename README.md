@@ -1,4 +1,13 @@
-<p align="center">Temporarily removing my strawpages until whoever is spamming it gets a grip. Use my ATA if you wanna sign anything.</p>
+<br>
+<details>
+<summary>Personal PSA:</summary>
+
+Added my strawpages back now that whoever was spamming me is blocked from sending gimmicks.
+Something I've been experiencing; You don't gotta read but help would be appreciated.
+[The Strawpage](https://personalpsa.straw.page/)
+I respond to questions. Spamming will be ignored unless I find necessary to reply.
+
+</details>
 
 __________________________________________________________________________________________
 
