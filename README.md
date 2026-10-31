@@ -105,6 +105,7 @@ ________________________________________________________________________________
 <p align="center"> ━━━━━━･❪ Ponytown's Viktor: ❫ ･━━━━━━ </p>
 
 ♡ [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) ♡\
+♡ [@pt-everypony](https://github.com/pt-everypony) -- For both Viktor Fictionkin & Prettiest Github! ♡\
 ♡ [@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@FlSHB0NEZ](https://github.com/FlSHB0NEZ) ♡
 
 __________________________________________________________________________________________
