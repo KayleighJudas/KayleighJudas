@@ -1,4 +1,4 @@
-<p align="center">$\color{#D58873}{HAPPY​ EARLY ​HALLOWEEN​ !!}$</p>
+<p align="center">$\color{#D58873}{HAPPY​ ​HALLOWEEN​ !!}$</p>
 
 __________________________________________________________________________________________
 
