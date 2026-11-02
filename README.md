@@ -1,5 +1,3 @@
-<p align="center">$\color{#D58873}{HAPPY​ ​HALLOWEEN​ !!}$</p>
-
 __________________________________________________________________________________________
 
 <p align="center">$\color{#B6D5C6}{PONYTOWN'S​ VIKTOR​ (ARCANE)​ AND ​MACHINE​ HERALD ​(LEAGUE​ OF ​LEGENDS) ← TY ​NOMINATIONS!}$</p>
@@ -104,7 +102,7 @@ ________________________________________________________________________________
 
 <p align="center"> ━━━━━━･❪ Ponytown's Viktor: ❫ ･━━━━━━ </p>
 
-♡ [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) ♡\
+♡ [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) [@bug-town](https://github.com/bug-town) [@Knox-Event](https://github.com/Knox-Event) ♡\
 ♡ [@pt-everypony](https://github.com/pt-everypony) -- For both Viktor Fictionkin & Prettiest Github! ♡\
 ♡ [@pt-ship-nominations](https://github.com/pt-ship-nominations) -- Matching Jayvik with [@FlSHB0NEZ](https://github.com/FlSHB0NEZ) ♡
 
