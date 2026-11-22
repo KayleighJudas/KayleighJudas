@@ -1,3 +1,19 @@
+<details>
+  <summary>personal thing, would appreciate the help.</summary>
+<br>
+Something I've experienced in the past that is resurfacing yet again. I would appreciate any kind of help.
+
+If you see someone cuddling me or sitting close to me that looks a bit like this: kindly ask them to leave.
+
+<img width="217" height="248" alt="image" src="https://github.com/user-attachments/assets/68280dac-b02e-4ac7-a130-ad6f094fa66c" />\
+The screenshot was provided to me by my partner -- I have this individual fully blocked and cannot see her.
+
+<img width="557" height="222" alt="image" src="https://github.com/user-attachments/assets/7022f073-b77b-45af-a711-d6a300252451" />
+
+If you're curious about details, feel free to ask. On my ATA preferably - and I'll explain as best I can. 
+
+</details>
+
 __________________________________________________________________________________________
 
 <p align="center">$\color{#B6D5C6}{PONYTOWN'S​ VIKTOR​ (ARCANE)​ AND ​MACHINE​ HERALD ​(LEAGUE​ OF ​LEGENDS) ← TY ​NOMINATIONS!}$</p>
