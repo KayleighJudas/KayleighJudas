@@ -5,12 +5,17 @@ Something I've experienced in the past that is resurfacing yet again. I would ap
 
 If you see someone cuddling me or sitting close to me that looks a bit like this: kindly ask them to leave.
 
-<img width="217" height="248" alt="image" src="https://github.com/user-attachments/assets/68280dac-b02e-4ac7-a130-ad6f094fa66c" />\
-The screenshot was provided to me by my partner -- I have this individual fully blocked and cannot see her.
+<img width="217" height="248" alt="image" src="https://github.com/user-attachments/assets/68280dac-b02e-4ac7-a130-ad6f094fa66c" />
+<img width="217" height="248" alt="image" src="https://github.com/user-attachments/assets/eb2742dc-25f7-4625-bf7e-c0d0489c3079" />
+
+These screenshots were provided to me by my partner -- I have this individual fully blocked and cannot see her.
 
 <img width="557" height="222" alt="image" src="https://github.com/user-attachments/assets/7022f073-b77b-45af-a711-d6a300252451" />
 
-If you're curious about details, feel free to ask. On my ATA preferably - and I'll explain as best I can. 
+This individual - "Star", is incredibly parasocial towards me. It has gotten to the point of borderline cyberstalking.\
+She also harasses my partner, blocks anyone who associates with me or calls her out, and plays clueless every time.
+
+If you're curious about full details, feel free to ask. On my ATA preferably - and I'll explain as best I can. 
 
 </details>
 
